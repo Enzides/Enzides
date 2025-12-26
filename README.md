@@ -8,10 +8,17 @@
   <a href="https://guns.lol/jodiojoestar">Guns.lol</a>
   <a 
      </p>
-    
+<p align="center"> 
+<img src="https://files.catbox.moe/auevhb.png"/>
+</p>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31opjmhdhfk62csl2bzm6f5jkfyy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
+<p align="center">
+<img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=FF8126">
+</p>
 <p align="center">
 <img src="https://files.catbox.moe/ka59ou.webp"/>
-</p>
-<p align="center"> 
-<img src="https://files.catbox.moe/dd3w08.png"/>
 </p>
