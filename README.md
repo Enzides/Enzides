@@ -8,3 +8,7 @@
   <a href="https://guns.lol/jodiojoestar">Guns.lol</a>
   <a 
      </p>
+    
+<p align="center">
+<img src="https://files.catbox.moe/ka59ou.webp"/>
+</p>
