@@ -19,6 +19,7 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=FF8126">
 </p>
+  <p align="center">dont play w me about shiho and mafuyu</p>
 <p align="center">
 <img src="https://files.catbox.moe/ka59ou.webp"/>
 </p>
