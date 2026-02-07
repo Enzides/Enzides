@@ -22,5 +22,5 @@
   <p align="center">dont play w me about shiho and ena</p>
   <p align="center">dni pjsk ship wars participants, i would prefer to not get into pointless discourse over preferences, thanks</p>
 <p align="center">
-<img src="https://files.catbox.moe/ka59ou.webp"/>
+<img src="https://files.catbox.moe/0m7se8.webp"/>
 </p>
