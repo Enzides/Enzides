@@ -9,7 +9,7 @@
   <a 
      </p>
 <p align="center"> 
-<img src="https://files.catbox.moe/n3jchi.jpeg"/>
+<img src="https://files.catbox.moe/5toipv.jpeg"/>
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
