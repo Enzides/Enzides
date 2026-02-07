@@ -20,7 +20,7 @@
   </a>
 </p>
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=FFC2E4">
+<img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=E8B3BF">
 </p>
   <p align="center">dont play w me about shiho and ena</p>
   <p align="center">YES i read all the stories, YES i still love mzen</p>
