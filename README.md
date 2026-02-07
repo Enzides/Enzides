@@ -20,6 +20,7 @@
 <img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=FFC2E4">
 </p>
   <p align="center">dont play w me about shiho and ena</p>
+  <p align="center">YES i read all the stories, YES i still love mzen</p>
   <p align="center">dni pjsk ship wars participants, i would prefer to not get into pointless discourse over preferences, thanks</p>
 <p align="center">
 <img src="https://files.catbox.moe/0m7se8.webp"/>
