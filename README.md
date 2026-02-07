@@ -20,7 +20,7 @@
 <img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=FF8126">
 </p>
   <p align="center">dont play w me about shiho and ena</p>
-  <p align="center">dni pjsk ship wars participants, i ship the popular ships and would prefer to not get into pointless discourse over preferences, thanks</p>
+  <p align="center">dni pjsk ship wars participants, i and would prefer to not get into pointless discourse over preferences, thanks</p>
 <p align="center">
 <img src="https://files.catbox.moe/ka59ou.webp"/>
 </p>
