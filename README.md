@@ -9,7 +9,7 @@
   <a 
      </p>
 <p align="center"> 
-<img src="https://files.catbox.moe/auevhb.png"/>
+<img src="https://files.catbox.moe/cdlvcn.jpeg"/>
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -17,7 +17,7 @@
   </a>
 </p>
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=FF8126">
+<img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=FFC2E4">
 </p>
   <p align="center">dont play w me about shiho and ena</p>
   <p align="center">dni pjsk ship wars participants, i would prefer to not get into pointless discourse over preferences, thanks</p>
