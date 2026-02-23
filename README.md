@@ -22,7 +22,7 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=E8B3BF">
 </p>
-  <p align="center">ena oshi, dont play w me abt her 🤑</p>
+  <p align="center">ena oshi, i dont play 🤑</p>
   <p align="center">YES i read all the stories, YES i still love mzen, YES i also multiship</p>
   <p align="center">dni pjsk ship wars participants, i would prefer to not get into pointless discourse over preferences</p>
   <p align="center">hi my lovely diskit quartet qpps <3 u guys r da niigo 2 my ena ^^</p>
