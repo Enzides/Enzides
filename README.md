@@ -27,6 +27,7 @@
   <p align="center">pjsk torture chambers</p>
   <p align="center">hi my lovely diskit quartet qpps <3 u guys r da niigo 2 my ena ^^</p>
   <p align="center">kin assigning my oomfs. astro: kanade, shiggy: mafuyu, sav: mizuki OBVIOUSLY</p>
+  <p align="center">pls feel free 2 int i dont bite on my LIFE im kinda awkward and stuff initially but get mega ez to talk to later.,. ok.,,,</p>
 <p align="center">
 <img src="https://files.catbox.moe/0m7se8.webp"/>
 </p>
