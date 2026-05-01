@@ -22,7 +22,7 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=Enzides&label=Losers&color=E8B3BF">
 </p>
-  <p align="center">ena oshi, i dont play 🤑</p>
+  <p align="center">ena kamioshi, i dont play 🤑</p>
   <p align="center">my hate account for shipping discourses they PMO BADLY 🤬🤬 everyone go back to elementary school</p>
   <p align="center">pjsk torture chambers</p>
   <p align="center">hi my lovely diskit quartet qpps <3 u guys r da niigo 2 my ena ^^</p>
