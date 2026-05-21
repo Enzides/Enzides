@@ -24,7 +24,7 @@
 </p>
   <p align="center">ena kamioshi, i dont play 🤑</p>
   <p align="center">my hate account for shipping discourses they PMO BADLY 🤬🤬 everyone go back to elementary school</p>
-  <p align="center">pjsk torture chambers</p>
+  <p align="center">prsk torture chambers</p>
   <p align="center">hi my lovely diskit quartet qpps <3 u guys r da niigo 2 my ena ^^</p>
   <p align="center">kin assigning my oomfs. astro: kanade, shiggy: mafuyu, sav: mizuki OBVIOUSLY</p>
   <p align="center">pls feel free 2 int i dont bite on my LIFE im kinda awkward and stuff initially but get mega ez to talk to later.,. ok.,,,</p>
